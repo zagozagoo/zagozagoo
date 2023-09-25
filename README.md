@@ -6,7 +6,7 @@
 
 ˖°✧°˖ email: vivizago4884@gmail.com
 
-˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗ funfact: my first name is Vitória and I'm Brazilian
+˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗ fun fact: my first name is Vitória and I'm Brazilian!!
 
 
 
