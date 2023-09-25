@@ -1,16 +1,18 @@
-### Hi there 👋
+### Hi, I'm Zago! * ✩ ‧ ✶ ₊˚✧
 
-<!--
-**zagozagoo/zagozagoo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+˗ˏˋ ★ ˎˊ˗ I’m a 17y and currently working at Bosch!
 
-Here are some ideas to get you started:
+°˖✧˖°learning python and C
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+˖°✧°˖ email: vivizago4884@gmail.com
+
+˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗ funfact: my first name is Vitória and I'm Brazilian
+
+
+
+  [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=oa6t21miva2ezjd5bh4eydtu7&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=b361b0&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
+૮ ˙Ⱉ˙ ა rawr!
