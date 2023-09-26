@@ -2,7 +2,7 @@
 
 ˗ˏˋ ★ ˎˊ˗ I’m a 17y and currently working at Bosch!
 
-°˖✧˖°learning python and C
+°˖✧˖° learning python and C
 
 ˖°✧°˖ email: vivizago4884@gmail.com
 
