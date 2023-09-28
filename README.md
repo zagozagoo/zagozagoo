@@ -4,9 +4,7 @@
 
 °˖✧˖° learning python and C
 
-˖°✧°˖ email: vivizago4884@gmail.com
-
-˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗ fun fact: my first name is Vitória and I'm Brazilian!!
+˖°✧°˖ fun fact: my first name is Vitória and I'm Brazilian!!
 
 
 
