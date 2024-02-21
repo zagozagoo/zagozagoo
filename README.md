@@ -1,6 +1,6 @@
 ### Hi, I'm Zago! * ✩ ‧ ✶ ₊˚✧
 
-˗ˏˋ ★ ˎˊ˗ I’m a 17y and currently working at Bosch!
+˗ˏˋ ★ ˎˊ˗ I’m a 18y and currently working at Bosch!
 
 °˖✧˖° learning python and C
 
