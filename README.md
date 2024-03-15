@@ -2,9 +2,8 @@
 
 ˗ˏˋ ★ ˎˊ˗ I’m a 18y and currently working at Bosch!
 
-°˖✧˖° learning python and C
 
-˖°✧°˖ fun fact: my first name is Vitória and I'm Brazilian!!
+˖°✧°˖ fun fact: my first name is Vitória and I'm Brazilian!! °˖✧˖° 
 
 
 
