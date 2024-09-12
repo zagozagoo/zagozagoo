@@ -1,9 +1,8 @@
 ### Hi, I'm Zago! * ✩ ‧ ✶ ₊˚✧
 
-˗ˏˋ ★ ˎˊ˗ I’m a 18y and currently working at Bosch!
+˗ˏˋ ★ ˎˊ˗ I’m a 18y currently working at Bosch!
 
-
-˖°✧°˖ fun fact: my first name is Vitória and I'm Brazilian!! °˖✧˖° 
+˖°✧°˖  °˖✧˖° 
 
 
 
